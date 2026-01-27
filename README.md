@@ -10,3 +10,4 @@ https://www.proxysite.com/
 https://www.croxyproxy.com/ 
 https://proxyium.com/
 https://www.4everproxy.com/
+https://astroid.gg/
