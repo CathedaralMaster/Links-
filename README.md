@@ -11,3 +11,4 @@ https://www.croxyproxy.com/
 https://proxyium.com/
 https://www.4everproxy.com/
 https://astroid.gg/
+https://ubghub.org/
