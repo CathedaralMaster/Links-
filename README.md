@@ -14,3 +14,5 @@ https://proxyium.com/
 https://www.4everproxy.com/
 https://astroid.gg/
 https://ubghub.org/
+https://goodmanwen.github.io/#/desktop
+https://dinhquangtrung.net/windows7/
