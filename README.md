@@ -16,3 +16,6 @@ https://astroid.gg/
 https://ubghub.org/
 https://goodmanwen.github.io/#/desktop
 https://dinhquangtrung.net/windows7/
+https://xp.quenq.com/
+https://emupedia.net/beta/emuos/
+https://web.archive.org/web/20220401074943/https://www.expensive.toys/
